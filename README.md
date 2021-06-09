@@ -21,3 +21,5 @@ Back To Basics Piano Lesson 8: https://skl.sh/3tlMkBc
 Visitez Leçons de Piano Classique: https://www.udemy.com/course/lecons-de-piano-classique/?referralCode=DC9CBBA56BF5843D1B3A
 
 Leçons de Piano Classique 2: https://www.udemy.com/course/lecon-de-piano-classique-2/?referralCode=E76294D2EA44FF546C8D
+
+Blog: https://primopiano4u.home.blog/
