@@ -24,6 +24,8 @@ Back To Basics Piano Lesson 10: https://skl.sh/3BensQ4
 
 Back To Basics Piano Lesson 11: https://skl.sh/3vkgdED
 
+Back To Basics Piano Lesson 12: https://skl.sh/3Hu7MuO
+
 Visitez Leçons de Piano Classique 2: https://www.udemy.com/course/lecon-de-piano-classique-2/?referralCode=E76294D2EA44FF546C8D
 
 Youtube: https://www.youtube.com/channel/UC4XFCTQg0exxwQmf1b9VP3w
