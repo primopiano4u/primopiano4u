@@ -2,7 +2,9 @@
 
 Website: https://primopiano4u.github.io/
 
-Check out Back to Basics Piano Lessons: https://skl.sh/32NP8fY
+Check out my NEW book: https://www.amazon.ca/dp/B09WLZJ94Z
+
+Back to Basics Piano Lessons: https://skl.sh/32NP8fY
 
 Back to Basics Piano Lesson 2: https://skl.sh/378rA6V
 
