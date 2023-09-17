@@ -22,6 +22,8 @@ The Greatest Gift: https://www.sheetmusicdirect.com/en-US/se/ID_No/1262065/Produ
 
 Wild Uncharted Waters: https://www.sheetmusicdirect.com/en-US/se/ID_No/1336850/Product.aspx
 
+Fascination: https://www.sheetmusicdirect.com/en-US/se/ID_No/1386463/Product.aspx
+
 Books 
 
 Easy Back To Basics Piano Music Book: https://www.amazon.ca/dp/B09WLZJ94Z
