@@ -26,7 +26,9 @@ Fascination: https://www.sheetmusicdirect.com/en-US/se/ID_No/1386463/Product.asp
 
 Books 
 
-Easy Back To Basics Piano Music Book: https://www.amazon.ca/dp/B09WLZJ94Z
+Easy Back To Basics Piano Music Book (paperback edition): https://www.amazon.ca/dp/B09WLZJ94Z
+
+Ebook Kindle edition: https://www.amazon.ca/dp/B0CN5KD4YG/
 
 Leçon de Piano Classique: https://www.amazon.ca/gp/product/B09X4KTZ15 
 
