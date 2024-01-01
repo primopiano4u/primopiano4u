@@ -28,11 +28,13 @@ Books
 
 Easy Back To Basics Piano Music Book (paperback edition): https://www.amazon.ca/dp/B09WLZJ94Z
 
-Ebook Kindle edition: https://www.amazon.ca/dp/B0CN5KD4YG/
+Kindle edition: https://www.amazon.ca/dp/B0CN5KD4YG/
 
 Leçon de Piano Classique: https://www.amazon.ca/gp/product/B09X4KTZ15 
 
 A Service Dog's Tale - Love Is Kind: https://www.amazon.ca/dp/B0BTS9G365
+
+Kindle edition: https://www.amazon.ca/Service-Dogs-Tale-Love-Kind-ebook/dp/B0CQTB3NJD
 
 Youtube: https://www.youtube.com/@PrimoPiano4U
 
