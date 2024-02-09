@@ -24,6 +24,8 @@ Wild Uncharted Waters: https://www.sheetmusicdirect.com/en-US/se/ID_No/1336850/P
 
 Fascination: https://www.sheetmusicdirect.com/en-US/se/ID_No/1386463/Product.aspx
 
+My Heart Will Go On: https://www.sheetmusicdirect.com/en-US/se/ID_No/1475985/Product.aspx
+
 Books 
 
 Easy Back To Basics Piano Music Book (paperback edition): https://www.amazon.ca/dp/B09WLZJ94Z
@@ -31,6 +33,8 @@ Easy Back To Basics Piano Music Book (paperback edition): https://www.amazon.ca/
 Kindle edition: https://www.amazon.ca/dp/B0CN5KD4YG/
 
 Leçon de Piano Classique: https://www.amazon.ca/gp/product/B09X4KTZ15 
+
+Kindle edition: https://www.amazon.ca/dp/B0CTMXF937
 
 A Service Dog's Tale - Love Is Kind: https://www.amazon.ca/dp/B0BTS9G365
 
