@@ -42,6 +42,8 @@ A Service Dog's Tale - Love Is Kind: https://www.amazon.ca/dp/B0BTS9G365
 
 Kindle edition: https://www.amazon.ca/Service-Dogs-Tale-Love-Kind-ebook/dp/B0CQTB3NJD
 
+Printable Piano Music Note Flashcards: https://payhip.com/b/D83wo
+
 Youtube: https://www.youtube.com/@PrimoPiano4U
 
 Blog: https://primopiano4u.home.blog/
