@@ -28,6 +28,8 @@ Fascination: https://www.sheetmusicdirect.com/en-US/se/ID_No/1386463/Product.asp
 
 My Heart Will Go On: https://www.sheetmusicdirect.com/en-US/se/ID_No/1475985/Product.aspx
 
+The Impossible Dream: https://www.sheetmusicdirect.com/en-US/se/ID_No/1667442/Product.aspx
+
 Books 
 
 Easy Back To Basics Piano Music Book (paperback edition): https://www.amazon.ca/dp/B09WLZJ94Z
