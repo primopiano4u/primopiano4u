@@ -32,6 +32,8 @@ The Impossible Dream: https://www.sheetmusicdirect.com/en-US/se/ID_No/1667442/Pr
 
 Die With A Smile: https://www.sheetmusicdirect.com/en-US/se/ID_No/1683350/Product.aspx
 
+Hallelujah: https://www.sheetmusicdirect.com/en-US/se/ID_No/1779662/Product.aspx
+
 Books 
 
 Easy Back To Basics Piano Music Book (paperback edition): https://www.amazon.ca/dp/B09WLZJ94Z
