@@ -44,11 +44,13 @@ Leçon de Piano Classique: https://www.amazon.ca/gp/product/B09X4KTZ15
 
 Kindle edition: https://www.amazon.ca/dp/B0CTMXF937
 
+Easy Piano Christmas Music Book: https://www.barnesandnoble.com/w/easy-piano-christmas-music-book-primopiano4u/1147932517?ean=9798319647085
+
 A Service Dog's Tale - Love Is Kind: https://www.amazon.ca/dp/B0BTS9G365
 
 Kindle edition: https://www.amazon.ca/Service-Dogs-Tale-Love-Kind-ebook/dp/B0CQTB3NJD
 
-Easy Piano Christmas Music Book: https://www.barnesandnoble.com/w/easy-piano-christmas-music-book-primopiano4u/1147932517?ean=9798319647085
+The Power Of Two: https://a.co/d/4vSvvJS
 
 Printable Piano Music Note Flashcards: https://payhip.com/b/D83wo
 
