@@ -52,6 +52,8 @@ Kindle edition: https://www.amazon.ca/Service-Dogs-Tale-Love-Kind-ebook/dp/B0CQT
 
 The Power Of Two: https://a.co/d/4vSvvJS
 
+Kindle edition: https://a.co/d/fOU7kgk
+
 Printable Piano Music Note Flashcards: https://payhip.com/b/D83wo
 
 Youtube: https://www.youtube.com/@PrimoPiano4U
