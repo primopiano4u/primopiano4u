@@ -2,6 +2,8 @@
 
 Website: https://primopiano4u.github.io/
 
+Back To Basics Piano Lesson Key Signatures: https://skl.sh/4nyRtlm
+
 Back To Basics Piano Lesson Music Notation: https://skl.sh/4cCKtiD
 
 Back to Basics Piano Lesson 2: https://skl.sh/378rA6V
