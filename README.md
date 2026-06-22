@@ -2,20 +2,6 @@
 
 Website: https://primopiano4u.github.io/
 
-Back To Basics Piano Lesson Key Signatures: https://skl.sh/4nyRtlm
-
-Back To Basics Piano Lesson Music Notation: https://skl.sh/4cCKtiD
-
-Back to Basics Piano Lesson 2: https://skl.sh/378rA6V
-
-Back To Basics Piano Lesson 10: https://skl.sh/3BensQ4
-
-Back To Basics Piano Lesson 11: https://skl.sh/3vkgdED
-
-Back To Basics Piano Lesson 12: https://skl.sh/3Hu7MuO
-
-Back To Basics Piano Lesson Ear Training Intervals: https://skl.sh/3OxV4SA 
-
 Leçons de Piano Classique 2: https://www.udemy.com/course/lecon-de-piano-classique-2/?referralCode=E76294D2EA44FF546C8D
 
 Sheet music 
